@@ -1,2 +1,2 @@
 # kz-secret-garden
-Luck is no excuse,and it was wonderful.right?
+Luck is no excuse,and life is wonderful.right?
